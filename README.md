@@ -15,7 +15,7 @@
   
 - 📫 Reach out at samantha.mashalo@ioco.tech or whatsapp 0720741418
                       
-- ⚡ From Richfield Graduate institute of Technology
+
 
 
 
